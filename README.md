@@ -1,0 +1,1 @@
+# Give-Me-Strength.-for-Windows
